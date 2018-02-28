@@ -1,2 +1,2 @@
 # 9RantEendjes.github.io
-FUCKING NIGGERS
+Voor de coele bois allen
